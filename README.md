@@ -1,1 +1,1 @@
-## The repository is only for free and opensource education. Commercial use is not allowed.
+## The repository is only for free and opensource education. Commercial 😡 use is not allowed. 🙏🙏🙏🙏🙏🙏🙏
